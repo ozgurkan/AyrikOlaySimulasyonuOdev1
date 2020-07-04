@@ -1,1 +1,3 @@
 # AyrikOlaySimulasyonuOdev1
+
+2019-2020 BAHAR DÖNEMİ AYRIK OLAY SİMÜLASYONU DERSİ 1.ÖDEVİ
