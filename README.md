@@ -1,0 +1,1 @@
+# AyrikOlaySimulasyonuOdev1
